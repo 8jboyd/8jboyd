@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @8jboyd
 - 👀 I’m interested in doing hard drugs.
 - 🌱 I’m currently learning DIT stuff.
-- 💞️ I’m looking to collaborate on the murder of Johann Moses. But if noone is interested I will do it myself. 
+- 💞️ I’m looking to collaborate on the murder of Johann Moses. But if no one is interested I will do it myself. 
 - 📫 How to reach me: don't.
 
 <!---
